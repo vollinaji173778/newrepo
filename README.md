@@ -1,1 +1,1 @@
-"Game of Thrones" employs multiple interconnected storylines, following characters across different regions of Westeros and Essos.
+The show's legacy extends beyond television, with spin-off projects and potential prequels in development.
