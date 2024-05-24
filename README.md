@@ -1,1 +1,1 @@
-"Game of Thrones" has been credited with revitalizing interest in the fantasy genre in television and popular culture.
+The series inspired a wave of fantasy television projects, including adaptations of other epic fantasy book series.
