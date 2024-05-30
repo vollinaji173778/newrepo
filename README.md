@@ -1,1 +1,1 @@
-Several actors from the series, including Emilia Clarke, Peter Dinklage, and Lena Headey, received Emmy nominations for their performances.
+"Get Out" (2017), directed by Jordan Peele, combined horror and social commentary to create a groundbreaking and thought-provoking film.
