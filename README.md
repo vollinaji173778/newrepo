@@ -1,1 +1,1 @@
-DreamWorks Animation's "Shrek" franchise debuted in 2001, blending humor and fairy-tale elements to critical and commercial success.
+"Frozen" (2013) subverted traditional Disney princess tropes with its focus on sisterly love and independence, resonating with audiences of all ages.
