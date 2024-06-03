@@ -1,1 +1,1 @@
-"Frozen" (2013) subverted traditional Disney princess tropes with its focus on sisterly love and independence, resonating with audiences of all ages.
+HBO has announced multiple spin-off projects set in the "Game of Thrones" universe, exploring different time periods and regions.
