@@ -1,1 +1,1 @@
-Charlize Theron's transformative performance as serial killer Aileen Wuornos in "Monster" (2003) earned her the Academy Award for Best Actress.
+"Game of Thrones" is known for its complex political intrigue, epic battles, and unexpected plot twists.
