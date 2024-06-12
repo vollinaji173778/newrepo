@@ -1,1 +1,1 @@
-Netflix produced acclaimed films such as "Roma" (2018), directed by Alfonso Cuarón, which won three Academy Awards including Best Director.
+The character of Jon Snow, played by Kit Harington, is revealed to be the son of Lyanna Stark and Rhaegar Targaryen, making him a pivotal figure in the series.
