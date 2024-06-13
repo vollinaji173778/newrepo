@@ -1,1 +1,1 @@
-The character of Jon Snow, played by Kit Harington, is revealed to be the son of Lyanna Stark and Rhaegar Targaryen, making him a pivotal figure in the series.
+Several actors from the series, including Emilia Clarke, Peter Dinklage, and Lena Headey, received Emmy nominations for their performances.
