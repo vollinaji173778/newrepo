@@ -1,1 +1,1 @@
-Several actors from the series, including Emilia Clarke, Peter Dinklage, and Lena Headey, received Emmy nominations for their performances.
+"Game of Thrones" received critical acclaim and holds the record for the most Primetime Emmy Awards won by a drama series.
