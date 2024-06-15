@@ -1,1 +1,1 @@
-"Game of Thrones" received critical acclaim and holds the record for the most Primetime Emmy Awards won by a drama series.
+The success of Indian films like "Baahubali: The Beginning" (2015) and "Baahubali 2: The Conclusion" (2017) demonstrated the growing influence of Bollywood on the global stage.
