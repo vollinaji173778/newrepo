@@ -1,1 +1,1 @@
-Christopher Nolan's "Memento" (2000) captivated audiences with its innovative narrative structure, playing scenes in reverse to mirror the protagonist's memory loss.
+"Pan's Labyrinth" (2006), directed by Guillermo del Toro, blended fantasy and historical drama to create a visually stunning and emotionally resonant film.
