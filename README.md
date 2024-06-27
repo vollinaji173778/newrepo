@@ -1,1 +1,1 @@
-The Night King, leader of the White Walkers, serves as the primary supernatural threat in the show's later seasons.
+Brie Larson made history as the first woman to lead a Marvel Cinematic Universe film with her portrayal of Captain Marvel in "Captain Marvel" (2019).
