@@ -1,1 +1,1 @@
-Brie Larson made history as the first woman to lead a Marvel Cinematic Universe film with her portrayal of Captain Marvel in "Captain Marvel" (2019).
+The 2010s saw the rise of original content on streaming platforms like Netflix, Hulu, and Amazon Prime Video, challenging traditional film studios and distribution models.
