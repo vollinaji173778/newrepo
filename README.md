@@ -1,1 +1,1 @@
-The 2010s saw the rise of original content on streaming platforms like Netflix, Hulu, and Amazon Prime Video, challenging traditional film studios and distribution models.
+The character of Jon Snow, played by Kit Harington, is revealed to be the son of Lyanna Stark and Rhaegar Targaryen, making him a pivotal figure in the series.
