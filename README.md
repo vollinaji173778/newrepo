@@ -1,1 +1,1 @@
-The character of Jon Snow, played by Kit Harington, is revealed to be the son of Lyanna Stark and Rhaegar Targaryen, making him a pivotal figure in the series.
+Charlize Theron's transformative performance as serial killer Aileen Wuornos in "Monster" (2003) earned her the Academy Award for Best Actress.
