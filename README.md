@@ -1,1 +1,1 @@
-The success of films like "Love, Simon" (2018) and "Call Me by Your Name" (2017) highlighted the demand for LGBTQ+ stories and characters in mainstream cinema.
+"Wonder Woman" (2017), directed by Patty Jenkins and starring Gal Gadot, became a symbol of female empowerment and shattered box office records for a female-directed superhero film.
