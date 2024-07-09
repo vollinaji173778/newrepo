@@ -1,1 +1,1 @@
-"Wonder Woman" (2017), directed by Patty Jenkins and starring Gal Gadot, became a symbol of female empowerment and shattered box office records for a female-directed superhero film.
+Despite its divisive final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
