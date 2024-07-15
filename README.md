@@ -1,1 +1,1 @@
-The Night King, leader of the White Walkers, serves as the primary supernatural threat in the show's later seasons.
+Netflix produced acclaimed films such as "Roma" (2018), directed by Alfonso Cuarón, which won three Academy Awards including Best Director.
