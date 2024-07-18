@@ -1,1 +1,1 @@
-Netflix produced acclaimed films such as "Roma" (2018), directed by Alfonso Cuarón, which won three Academy Awards including Best Director.
+The Red Wedding, depicted in the episode "The Rains of Castamere," is one of the most shocking and memorable events in the series.
