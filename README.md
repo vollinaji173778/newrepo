@@ -1,1 +1,1 @@
-"Eternal Sunshine of the Spotless Mind" (2004), directed by Michel Gondry, explored themes of memory and love, earning critical acclaim and a loyal fanbase.
+Quentin Tarantino's "Kill Bill" duology, released in 2003 and 2004, showcased his signature style of nonlinear storytelling and homage to genre cinema.
