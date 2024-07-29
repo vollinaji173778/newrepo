@@ -1,1 +1,1 @@
-Sofia Coppola's "Lost in Translation" (2003) won the Academy Award for Best Original Screenplay and earned critical praise for its intimate portrayal of loneliness and connection.
+The series inspired a wave of fantasy television projects, including adaptations of other epic fantasy book series.
