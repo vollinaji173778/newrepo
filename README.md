@@ -1,1 +1,1 @@
-The series inspired a wave of fantasy television projects, including adaptations of other epic fantasy book series.
+The success of "Game of Thrones" led to increased demand for gritty, character-driven storytelling in the fantasy genre.
